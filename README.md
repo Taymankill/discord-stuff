@@ -1,1 +1,2 @@
+skate fast
 eat ass
